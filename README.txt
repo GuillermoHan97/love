@@ -1,1 +1,1 @@
-https://guillermohan97.github.io/hxc-love-zxx/
+https://guillermohan97.github.io/love/
